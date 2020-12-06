@@ -1,1 +1,1 @@
-![alt tag](https://psv4.userapi.com/c856532/u543027815/docs/d17/f091e1a9ab08/Microsoft_Surface_Duo_Wallpaper_1_YTECHB.jpg?extra=A9VPOXNsdF6ENKfxZ1krTNEmve_MIG0pWqQ6Auyb-HRCEUVJM5DZSYSlxqpdAmjeoc15rr4eQQ8irkraCAwuw-OoJTSaQgY11dQU1fNcgdcWGJSiyHNKMxOI0dpXUgLDPdA3ZNHBCsM9Ck3msTCZynbYWA "Beatiful")​
+![alt tag]()​
