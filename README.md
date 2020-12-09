@@ -1,1 +1,6 @@
-![alt tag](https://sun9-14.userapi.com/impg/46mV7MskfojZqlI7S8CJJT8SHKKxcK6NHyHV-w/hGgIo6uSf4s.jpg?size=1080x561&quality=96&proxy=1&sign=b4d33eb163ce2ae05d3d819fb2c7f507)​
+![alt tag](https://sun9-2.userapi.com/impg/pPgcvwLEgRJWHAqKbAA8SmseU-CWtr5xy1WxBQ/lW9RrL4az7Y.jpg?size=1280x637&quality=96&sign=f974e002e6ab437bd7853ef97185b438 "Screenshot")​
+Follow me on Twitter - https://twitter.com/PixaxeP
+
+Follow me on VK - https://vk.com/pixaxeofpixie
+
+My VK group - https://vk.com/braindustry
